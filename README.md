@@ -43,7 +43,7 @@ Somos un grupo de alumnos de E.E.S.T. N°7 "Taller Regional Quilmes" (IMPA).
 ### Simon Srour
 * 📷 Instagram: simmon_srour
 * 📧 simonsrour@impatrq.com
-* LinkedIn: -
+* LinkedIn: https://www.linkedin.com/in/simon-srour-713949330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app 
 
 ### Luca Vitale
 * 📷 Instagram: vitalelucaa
