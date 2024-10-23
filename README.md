@@ -38,7 +38,7 @@ Somos un grupo de alumnos de E.E.S.T. N°7 "Taller Regional Quilmes" (IMPA).
 ### Lisandro Garcia Rabal
 * 📷 Instagram: liisandrogarcia
 * 📧 lisandrogarciarabal@impatrq.com
-* LinkedIn: -
+* LinkedIn: https://www.linkedin.com/in/lisandro-garcia-rabal-5b65b4334/
 
 ### Simon Srour
 * 📷 Instagram: simmon_srour
@@ -48,7 +48,7 @@ Somos un grupo de alumnos de E.E.S.T. N°7 "Taller Regional Quilmes" (IMPA).
 ### Luca Vitale
 * 📷 Instagram: vitalelucaa
 * 📧 lucavitale@impatrq.com
-  * LinkedIn: https://www.linkedin.com/in/maximo-badeigts/
+  * LinkedIn: 
 
 </div>
 ## ¿Cómo contactarnos?
