@@ -33,22 +33,22 @@ Somos un grupo de alumnos de E.E.S.T. N°7 "Taller Regional Quilmes" (IMPA).
 ### Valentin Walter Mariño
 * 📷 Instagram: valenn.marino
 * 📧 valentinwaltermarinio@impatrq.com  
-* LinkedIn:- 
+* LinkedIn: https://www.linkedin.com/in/valentin-mari%C3%B1o-0a2b60334/
 
 ### Lisandro Garcia Rabal
 * 📷 Instagram: liisandrogarcia
 * 📧 lisandrogarciarabal@impatrq.com
-* LinkedIn: -
+* LinkedIn: https://www.linkedin.com/in/lisandro-garcia-rabal-5b65b4334/
 
 ### Simon Srour
 * 📷 Instagram: simmon_srour
 * 📧 simonsrour@impatrq.com
-* LinkedIn: -
+* LinkedIn: https://www.linkedin.com/in/simon-srour-713949330/
 
 ### Luca Vitale
 * 📷 Instagram: vitalelucaa
 * 📧 lucavitale@impatrq.com
-  * LinkedIn: https://www.linkedin.com/in/maximo-badeigts/
+* LinkedIn: https://www.linkedin.com/in/luca-vitale-8a8975271/
 
 </div>
 ## ¿Cómo contactarnos?
