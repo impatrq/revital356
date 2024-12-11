@@ -13,6 +13,8 @@
 
 </div>
 
+[Uploading Foto Grupal.imag![Los Pibes en el Hiller](https://github.com/impatrq/revital356/blob/main/6672e718f776697ca9d9ca2c_LOS%20PIBES%20EN%20EL%20HILLER-p-1080.jpg?raw=true)e…]()
+
 ## ¿Qué es REVITAL356?
 Vover a darle valor a un helicoptero donado a la institucion reacondicionando sus sistemas y el motor dejando la unidad preparada para futuras explicaciones valiosas.
 
