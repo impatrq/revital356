@@ -13,8 +13,6 @@
 
 </div>
 
-![Equipo de Aviación](https://d41chssnpqdne.cloudfront.net/user_upload_by_module/chat_bot/files/41800431/m8K2QNjo8d3OnZNv)
-
 ## ¿Qué es REVITAL356?
 Vover a darle valor a un helicoptero donado a la institucion reacondicionando sus sistemas y el motor dejando la unidad preparada para futuras explicaciones valiosas.
 
